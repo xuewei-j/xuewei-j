@@ -20,7 +20,7 @@ open-ended travel intent into structured booking flows. Before that, I spent thr
 
 ### Background
 
-MA in Exhibition & Experience Design (Fashion Institute of Technology) · BFA in Fine Arts (School of the Art Institute
+MA in Experience Design (Fashion Institute of Technology) · BFA in Fine Arts (School of the Art Institute
 of Chicago)
 
 [Portfolio](https://www.xueweijiang.com) · [LinkedIn](https://www.linkedin.com/in/xueweijiang)
